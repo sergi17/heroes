@@ -1,0 +1,1 @@
+Jessica Campbell Jones es un personaje de Marvel Comics. Apareció por primera vez en 2001 como protagonista de la serie Alias, que pertenecía a la línea editorial MAX, dirigida a un público más adulto. Es también conocida como Joya, Knightress y Power Woman. Está casada con el héroe Luke Cage, con quien tiene una hija, Danielle.
